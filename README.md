@@ -10,6 +10,7 @@
 - 💬 Ask me about **Flutter**
 
 - 📫 How to reach me **mz2139006@gmail.com**
+- 📫 How to reach me **mohamedzaghloul26@gmail.com**
 
 - ⚡ Always **Learning new things**
 
